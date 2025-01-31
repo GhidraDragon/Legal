@@ -15,3 +15,5 @@ Legal: https://drive.proton.me/urls/K78W0CF7X0#7XtbHrLpv4k9
 ![Amanda](https://github.com/user-attachments/assets/f7db0821-4162-4a00-8e72-4a02dc8aa84f)
 
 ![ExploitGPTStarter](https://github.com/user-attachments/assets/4506d1cd-0110-4f49-a242-9925dc65208b)
+
+![ExploitGPT](https://github.com/user-attachments/assets/92447fab-4c90-4815-8352-db70eedae1b8)
