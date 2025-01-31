@@ -17,3 +17,5 @@ Legal: https://drive.proton.me/urls/K78W0CF7X0#7XtbHrLpv4k9
 ![ExploitGPTStarter](https://github.com/user-attachments/assets/4506d1cd-0110-4f49-a242-9925dc65208b)
 
 ![ExploitGPT](https://github.com/user-attachments/assets/92447fab-4c90-4815-8352-db70eedae1b8)
+
+![tweetstoErosoalr](https://github.com/user-attachments/assets/9558c815-b6fe-4238-aaa2-17ec0890d3d4)
